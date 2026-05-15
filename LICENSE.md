@@ -1,4 +1,4 @@
-
+Enhance your Hotspot Shield experience with smart Hotspot Shield Plugin | dynamic-IP + simultaneous-connections, the #1 plugin. Includes dynamic-IP and simultaneous-connections
 
 
 
